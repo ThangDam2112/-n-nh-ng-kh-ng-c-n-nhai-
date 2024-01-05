@@ -1,1 +1,1 @@
-# -n-nh-ng-kh-ng-c-n-nhai-
+an khong can nhai
